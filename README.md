@@ -1,2 +1,0 @@
-
-Susie Neilson, data reporter
